@@ -8,4 +8,4 @@ http://www.alfalahcoin.net
 
 http://www.alfalahcoin.biz
 
-http://www.alfalahcoin.edu
+http://www.alfalahcoin.info
